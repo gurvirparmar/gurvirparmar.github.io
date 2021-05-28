@@ -1,2 +1,0 @@
-# gurvirparmar.github.io
-Portfolio 
